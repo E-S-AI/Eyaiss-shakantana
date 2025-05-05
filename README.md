@@ -46,7 +46,7 @@ Damascus, Syria | 2020 – 2025
 
 - 📧 Email: eyaiss.shakantana2002@gmail.com  
 - 💼 LinkedIn: (Coming soon)  
-- 💻 GitHub: [github.com/eyaiss-shakantana](https://github.com/eyaiss-shakantana)
+- 💻 GitHub: [[github.com/eyaiss-shakantana](https://github.com/eyaiss-shakantana)](https://github.com/E-S-AI)
 
 ---
 
